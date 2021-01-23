@@ -1,8 +1,10 @@
 # French
 ## Lien vers la vidéo
+https://www.youtube.com/watch?v=FcJENRCuJPo
 
 ### Titre
 Comment mieux ressentir et pratiquer la guitare
+
 ### Description
 Quelques conseils pour progresser à la guitare en appliquant des techniques inspirées de la méditation mindfulness. pour ceux qui veulent zapper le blabla du début, il y a le chapitrage ci dessous, et concrètement on peut directement regarder à partir de : 03:20 Être présent :-)
 
